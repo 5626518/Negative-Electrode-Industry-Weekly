@@ -1,1 +1,0 @@
-# Negative-Electrode-Industry-Weekly
